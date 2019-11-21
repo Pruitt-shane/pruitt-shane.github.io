@@ -3,7 +3,7 @@
 
 ### Where I'm From 
 ![Florida](http://www.worldatlas.com/img/areamap/703c198db6b9235a043ab7b56a6dc743.gif)  
-Conveniently located just about an hour away from both Disneyland and the beach. **super hot**, and filled with gators, but at least we've got the water. 
+Conveniently located just about an hour away from both Disneyland and the beach. **Super hot**, and filled with gators, but at least we've got the water. 
 
 
 
