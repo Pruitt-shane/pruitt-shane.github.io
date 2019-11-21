@@ -2,7 +2,7 @@
 
 ## Where I'm From 
 ![Florida](http://www.worldatlas.com/img/areamap/703c198db6b9235a043ab7b56a6dc743.gif)
-Conveniently located just about an hour away from both Disneyland and the beach. 
+    Conveniently located just about an hour away from both Disneyland and the beach. 
 
 
 
